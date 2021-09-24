@@ -1,4 +1,4 @@
-`Free 【Simcity BuildIt Hack Generator] 2022!! [[FREE Unlimited Simoleons and SimCash]]
+`Free 【Simcity BuildIt Hack Generator】2022!! [[FREE Unlimited Simoleons and SimCash]]
 ~~~~~~~~~~~~
 Updated: [September 26, 2021] User Online 45887
 
